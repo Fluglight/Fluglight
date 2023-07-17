@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Fluglicht
+- 👀 I’m interested in developing
+- 📫 How to reach me e-mail or discord: Fluglicht
